@@ -23,3 +23,6 @@ After starting my journey towards my Bachelors Degree, I got my first job as a H
 Needless to say I've had other positions throughout my career and I'm always looking for the next challenge, I truly enjoy my current position because I feel like I make a difference where I'm at, [Appriss](https://www.appriss.com) is a wonderful company that was born out of a tragedy unfortunately, but out of the tragedy was birthed [VINE](https://vinelink.com/#what-is-vine), which allows victims to receive notifications for inmates that they register to monitor such as if the person is released, has a court hearing or any change in their status. By providing notifications to victims once an inmates status changes, it allows the victim the opportunity to go somewhere safe. 
 
 I'm sure I'll add to this page as more thing's come to me, but thanks for taking the time to read it.
+
+#### LinkedIN
+[Its me](https://www.linkedin.com/in/msartuche/)
