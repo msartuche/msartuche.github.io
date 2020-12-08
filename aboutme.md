@@ -24,5 +24,5 @@ Needless to say I've had other positions throughout my career and I'm always loo
 
 I'm sure I'll add to this page as more thing's come to me, but thanks for taking the time to read it.
 
-#### LinkedIN
-[Its me](https://www.linkedin.com/in/msartuche/)
+#### LinkedIn
+https://www.linkedin.com/in/msartuche/
